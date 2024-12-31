@@ -1,4 +1,4 @@
-Hello, Mike Makori here.
+Hello, please correct my projects, ask for them and recommend anything new at any time.
 Excited to be part of this journey of coding
 
 <!---
